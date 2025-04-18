@@ -1,12 +1,12 @@
 # Bônus Quotex "1001promo" Quotex Brasil 
-🔖 Bônus Quotex: Ganhe 50% com Bônus Quotex "1001promo" no check out 🚀  [https://qxbroker.com/](https://broker-qx.pro/sign-up/?lid=1020919). Aproveite o bônus especial do Corretora Quotex, onde você pode receber até 50% extras em seus depósitos ao utilizar o código promocional.
+🔖 Bônus Quotex: Ganhe 50% com Bônus Quotex "1001promo" no check out 👉  [https://qxbroker.com/](https://broker-qx.pro/sign-up/?lid=1020919). Aproveite o bônus especial do Corretora Quotex, onde você pode receber até 50% extras em seus depósitos ao utilizar o código promocional.
 
 Bônus Quotex: Aproveite o bônus especial do Quotex, onde você pode receber até 50% extras em seus depósitos ao utilizar o código promocional. 
 
 
 
 
-🌐 **Site oficial:** [https://quotex.wiki.br/](https://quotex.wiki.br/)
+🌐 **Site oficial:** 👉 [https://quotex.wiki.br/](https://quotex.wiki.br/)
 
 ---
 
@@ -51,7 +51,7 @@ Este conteúdo é exclusivamente educacional e promocional. Investimentos em op�
 
 ---
 
-🎁 Bônus Exclusivo Quotex: Ganhe até 50% Extra no Seu Depósito! [https://qxbroker.com/](https://broker-qx.pro/sign-up/?lid=1020919)
+🎁 Bônus Exclusivo Quotex: Ganhe até 50% Extra no Seu Depósito! 👉 [https://qxbroker.com/](https://broker-qx.pro/sign-up/?lid=1020919)
 
 Aproveite agora o bônus especial da Quotex e potencialize seus lucros! Ao utilizar o código promocional 1001PROMO no momento do depósito, você recebe 50% de bônus extra imediatamente.
 
