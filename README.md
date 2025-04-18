@@ -3,12 +3,10 @@
 
 Bônus Quotex: Aproveite o bônus especial do Quotex, onde você pode receber até 50% extras em seus depósitos ao utilizar o código promocional. 
 
-🌐 **Site oficial:** 👉 [https://quotex.wiki.br/](https://quotex.wiki.br/)
-
 ---
 
 ![image](https://github.com/user-attachments/assets/f6bcad4c-c442-4aab-af22-7a56dd566ae2)
-
+🌐 **Site oficial:** 👉 [https://quotex.wiki.br/](https://quotex.wiki.br/)
 
 ## 📌 Sobre a Quotex
 
